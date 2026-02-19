@@ -25,3 +25,5 @@
     
 <p align="center">
     <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/8ff9e57a-3408-4dc7-a50e-ccf3473cc407" />
+
+credits to @N1L0U for github inspo
