@@ -7,18 +7,18 @@
 </p>
 
 <p align="center">
-──── ✦ ✩ Any gender's is oaky, but i normally use She/Her ✩ ✦ ────
+✦ ✩ Any gender's is oaky, but i normally use She/Her ✩ ✦ 
 
 ˚
     
 <p align="center">
-𓇼𓇼𓇼──── Im just about off tab most of the time, w2i is the best option to contact me ────𓇼𓇼𓇼
+𓇼𓇼𓇼Im just about off tab most of the time, w2i is the best option to contact me 𓇼𓇼𓇼
 
 <p align="center">  
-──── Things that PMO me: Annoying and and gets angry for no reason, not responding to WHILE you are on tab and moving around, poking me if your a stranger [ constintly btw ], Rage baiters, myself, I will Fish you. ────
+──── Things that PMO me: Annoying and and gets angry for no reason, not responding to WHILE you are on tab and moving around, ──── ──── poking me if your a stranger [ constintly btw ], Rage baiters, myself, I will Fish you. ────
 
 <p align="center">  
- < ──── Links!  ──── >
+ < ────  Links!  ──── >
 </p>
 
  [atabook](https://lazytofu78.atabook.org/)  ✦  [strawpage](https://tofusushi.straw.page/) ✦ [card](https://tomoecard.carrd.co/)  ✦  [Twitter/X](https://x.com/Lazy_Tofu7)
