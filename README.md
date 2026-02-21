@@ -21,7 +21,7 @@
  < ────  Links!  ──── >
 </p>
 
- [atabook](https://lazytofu78.atabook.org/)  ✦  [strawpage](https://tofusushi.straw.page/) ✦ [card](https://tomoecard.carrd.co/)  ✦  [Twitter/X](https://x.com/Lazy_Tofu7)   ✦  [Tiktok](https://www.tiktok.com/@tofusushi31213)
+ [atabook](https://aratakitofu.carrd.co/)  ✦  [strawpage](https://tofusushi.straw.page/) ✦ [card](https://tomoecard.carrd.co/)  ✦  [Twitter/X](https://x.com/Lazy_Tofu7)   ✦  [Tiktok](https://www.tiktok.com/@tofusushi31213)
     
 <p align="center">
     <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/8ff9e57a-3408-4dc7-a50e-ccf3473cc407" />
