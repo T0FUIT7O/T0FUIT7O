@@ -4,6 +4,7 @@
   <a href="https://git.io/typing-svg">
 <img src="<a href="<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=A72439BB&width=435&lines=%E4%BB%96%E4%BA%BA%E3%81%AB%E5%84%AA%E3%81%97%E3%81%8F++%E3%81%99%E3%82%8B%E3%81%AE%E3%81%8C%E5%A4%A7%E5%A5%BD%E3%81%8D%E3%81%A7%E3%81%99.;Being+nice+is+easy.;But+so+is+being+mean." alt="Typing SVG" /></a>
 
+
 ˚ʚ♡ɞ˚![GitHub Views](https://komarev.com/ghpvc/?username=natterstefan&color=FAC151)˚ʚ♡ɞ˚
 
 
