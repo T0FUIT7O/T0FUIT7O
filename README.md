@@ -20,6 +20,12 @@
 <p align="center">
 Ships I like are: ' Wrio x Neuvi ' 𓇼 ' Gorou x Itto ' 𓇼 ' Itto x Kuki ' 𓇼 ' Scara x Me ' 𓇼 ' Itto x Me ' 𓇼 ' Mavuika x Xilonen ' 𓇼 , " . And thats it . " ,
 
+<p align="center">
+──── 𓇼 DNI 𓇼 ────
+   
+<p align="center">
+Dni if you Ship 𓇼, ".Kaeya x Diluc, 𓇼 Wanderer x Kazuha, 𓇼 Wanderer x Durin, 𓇼 Hu Tao x Zhongli, 𓇼 Xiao x Zhongli, 𓇼 Lynette x Lyney." , 𓇼
+
 <p align="center">  
  < ────  Links!  ──── >
 </p>
