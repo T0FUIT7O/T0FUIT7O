@@ -11,7 +11,8 @@
 
 
 <p align="center">
-   <img width="298" height="309" alt="image" src="https://github.com/user-attachments/assets/9a2cc08d-6fe8-415c-a261-39fa0c460e89" />
+  <img width="268" height="310" alt="image" src="https://github.com/user-attachments/assets/f24dd0e0-85a4-4ac3-bfd9-f59968429fd2" />
+
 
 </p>
 
@@ -42,6 +43,7 @@ Dni if you Ship 𓇼, ".Kaeya x Diluc, 𓇼 Wanderer x Kazuha, 𓇼 Wanderer x D
  [atabook](https://aratakitofu.atabook.org/)  ✦  [strawpage](https://aratakitofu.straw.page/) ✦ [card](https://aratakitofu.carrd.co/)  ✦  [Twitter/X](https://x.com/Lazy_Tofu7)   ✦  [Tiktok](https://www.tiktok.com/@tofusushi31213)
     
 <p align="center">
-    <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/8ff9e57a-3408-4dc7-a50e-ccf3473cc407" />
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/b85e96b7-a32d-4538-99e2-de000cc0a7f8" />
+
 
 credits to @N1L0U for github inspo
