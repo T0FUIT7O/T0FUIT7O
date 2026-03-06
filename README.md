@@ -8,7 +8,9 @@
 ˚ʚ♡ɞ˚![MyLovers](https://komarev.com/ghpvc/?username=natterstefan&color=FAC151)˚ʚ♡ɞ˚
 
 
-
+<p align="center">
+  
+ ✦  [Mxzlmv](https://github.com/Mxzlmv) can u be my wife/husband? ✦ 
 
 <p align="center">
   <img width="268" height="310" alt="image" src="https://github.com/user-attachments/assets/f24dd0e0-85a4-4ac3-bfd9-f59968429fd2" />
