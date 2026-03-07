@@ -12,7 +12,7 @@
 
 <p align="center">
   
- ✦  [Mxzlmv](https://github.com/Mxzlmv) can u be my wife/husband? ✦ 
+ ✦  Birthday ~ March 28th ! ! !  ✦ 
 
 <p align="center">
 <img width="193" height="270" alt="image" src="https://github.com/user-attachments/assets/90ad66f3-dece-47ef-8cfc-33b2f83e2361" />
