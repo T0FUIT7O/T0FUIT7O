@@ -5,7 +5,7 @@
     
   <p align="center">
     
-  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=A72439FD&width=435&lines=DAMN+IT!;Oi+oi+oi+baka...;IM+GONNA+KIL+LYOU!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=A72439BB&width=435&lines=IM+GONNA+KILL+YOU%2C+DAMN+IT!;%E6%AE%BA%E3%81%97%E3%81%A6%E3%82%84%E3%82%8B%E3%82%88%E3%80%81%E3%81%A1%E3%81%8F%E3%81%97%E3%82%87%E3%81%86%EF%BC%81)](https://git.io/typing-svg)
 
 ˚ʚ♡ɞ˚![MyLovers](https://komarev.com/ghpvc/?username=natterstefan&color=FAC151)˚ʚ♡ɞ˚
 
