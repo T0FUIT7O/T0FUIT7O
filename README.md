@@ -34,7 +34,7 @@
 ──── Things that PMO me: Annoying and and gets angry for no reason, not responding to WHILE you are on tab and moving around, ──── ──── poking me if your a stranger [ constintly btw ], Rage baiters, myself, I will Fish you. ────
 
 <p align="center">
-Ships I like are: ' Wrio x Neuvi ' 𓇼 ' Gorou x Itto ' 𓇼 ' Itto x Kuki ' 𓇼 ' Scara x Me ' 𓇼 ' Itto x Me ' 𓇼 ' Mavuika x Xilonen ' 𓇼 , " . And thats it . " ,
+Ships I like are: ' Gay / straight , no under 18 and over 18 ships, unless its " , `17x18`" , ' 𓇼 , " . And thats it . " ,
 
 <p align="center">
 ──── 𓇼 DNI 𓇼 ────
