@@ -2,7 +2,7 @@
 <div align="center">
 <div class="markdown heading" dir="auto">
   <a href="https://git.io/typing-svg">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=6672DACA&width=435&lines=See+you+at..+the+graveyard..;Burn..+no+more..;I+will+reurn...+as..+an+avalanche.." alt="Typing SVG" /></a>
+
 
 
 ˚ʚ♡ɞ˚![MyLovers](https://komarev.com/ghpvc/?username=natterstefan&color=FAC151)˚ʚ♡ɞ˚
@@ -13,7 +13,8 @@
  ✦  [Mxzlmv](https://github.com/Mxzlmv) can u be my wife/husband? ✦ 
 
 <p align="center">
-  <img width="268" height="310" alt="image" src="https://github.com/user-attachments/assets/f24dd0e0-85a4-4ac3-bfd9-f59968429fd2" />
+<img width="475" height="480" alt="image" src="https://github.com/user-attachments/assets/c98ee3e0-39c1-4654-bd6c-0cac18b8c27f" />
+
 
 
 </p>
@@ -36,7 +37,7 @@ Ships I like are: ' Wrio x Neuvi ' 𓇼 ' Gorou x Itto ' 𓇼 ' Itto x Kuki ' �
 ──── 𓇼 DNI 𓇼 ────
    
 <p align="center">
-Dni if you Ship 𓇼, ".Kaeya x Diluc, 𓇼 Wanderer x Kazuha, 𓇼 Wanderer x Durin, 𓇼 Hu Tao x Zhongli, 𓇼 Xiao x Zhongli, 𓇼 Lynette x Lyney." , 𓇼
+Dni if you Ship 𓇼, coming soon ,𓇼
 
 <p align="center">  
  < ────  Links!  ──── >
@@ -45,7 +46,8 @@ Dni if you Ship 𓇼, ".Kaeya x Diluc, 𓇼 Wanderer x Kazuha, 𓇼 Wanderer x D
  [atabook](https://aratakitofu.atabook.org/)  ✦  [strawpage](https://aratakitofu.straw.page/) ✦ [card](https://aratakitofu.carrd.co/)  ✦  [Twitter/X](https://x.com/Lazy_Tofu7)   ✦  [Tiktok](https://www.tiktok.com/@tofusushi31213)
     
 <p align="center">
-<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/b85e96b7-a32d-4538-99e2-de000cc0a7f8" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/b50a63f6-c89a-49c7-8057-599a659c9132" />
+
 
 
 credits to @N1L0U for github inspo
