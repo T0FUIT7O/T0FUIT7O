@@ -2,8 +2,10 @@
 <div align="center">
 <div class="markdown heading" dir="auto">
   <a href="https://git.io/typing-svg">
-
-
+    
+  <p align="center">
+    
+  [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=A72439FD&width=435&lines=DAMN+IT!;Oi+oi+oi+baka...;IM+GONNA+KIL+LYOU!)](https://git.io/typing-svg)
 
 ˚ʚ♡ɞ˚![MyLovers](https://komarev.com/ghpvc/?username=natterstefan&color=FAC151)˚ʚ♡ɞ˚
 
