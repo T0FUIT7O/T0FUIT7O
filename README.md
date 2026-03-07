@@ -13,7 +13,8 @@
  ✦  [Mxzlmv](https://github.com/Mxzlmv) can u be my wife/husband? ✦ 
 
 <p align="center">
-<img width="475" height="480" alt="image" src="https://github.com/user-attachments/assets/c98ee3e0-39c1-4654-bd6c-0cac18b8c27f" />
+<img width="193" height="270" alt="image" src="https://github.com/user-attachments/assets/90ad66f3-dece-47ef-8cfc-33b2f83e2361" />
+
 
 
 
@@ -46,7 +47,8 @@ Dni if you Ship 𓇼, coming soon ,𓇼
  [atabook](https://aratakitofu.atabook.org/)  ✦  [strawpage](https://aratakitofu.straw.page/) ✦ [card](https://aratakitofu.carrd.co/)  ✦  [Twitter/X](https://x.com/Lazy_Tofu7)   ✦  [Tiktok](https://www.tiktok.com/@tofusushi31213)
     
 <p align="center">
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/b50a63f6-c89a-49c7-8057-599a659c9132" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/3a94b4b4-ebd9-4a8b-99b1-4119ada913cb" />
+
 
 
 
