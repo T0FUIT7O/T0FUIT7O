@@ -12,6 +12,10 @@
 
 <p align="center">
   
+[Respect Miky](https://github.com/ReverieRosee)
+
+<p align="center">
+  
  ✦  Birthday ~ March 28th ! ! !  ✦ 
 
 <p align="center">
