@@ -12,7 +12,7 @@
 
 <p align="center">
   
-[Respect Miky](https://github.com/ReverieRosee)
+my disc: fih_tofu
 
 <p align="center">
   
