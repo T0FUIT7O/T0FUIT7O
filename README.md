@@ -20,7 +20,8 @@ my disc: fih_tofu
  ✦  Birthday ~ March 28th ! ! !  ✦ 
 
 <p align="center">
-<img width="276" height="523" alt="image" src="https://github.com/user-attachments/assets/240d0386-4368-45d1-b75a-e5950ca78bca" />
+<img width="634" height="563" alt="image" src="https://github.com/user-attachments/assets/2696999d-d173-417d-beb4-2c123378f95f" />
+
 
 
 
