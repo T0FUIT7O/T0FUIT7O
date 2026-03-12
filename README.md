@@ -53,7 +53,7 @@ Dni if you Ship 𓇼, coming soon ,𓇼
  < ────  Links!  ──── >
 </p>
 
-   ✦  [atabook](https://aratakitofu.atabook.org/)  ✦  [strawpage](https://aratakitofu.straw.page/) ✦ [card](https://aratakitofu.carrd.co/)  ✦  [Twitter/X](https://x.com/Lazy_Tofu7)   ✦  [Tiktok](https://www.tiktok.com/@tofusushi31213)   ✦  [Insta](https://www.instagram.com/fih_tofu/)  ✦  
+   ✦  [atabook](https://aratakitofu.atabook.org/)  ✦  [strawpage](https://chosofihtofu.straw.page/) ✦ [card](https://aratakitofu.carrd.co/)  ✦  [Twitter/X](https://x.com/Lazy_Tofu7)   ✦  [Tiktok](https://www.tiktok.com/@tofusushi31213)   ✦  [Insta](https://www.instagram.com/fih_tofu/)  ✦  
     
 <p align="center">
 <img width="1000" height="562" alt="image" src="https://github.com/user-attachments/assets/81b20505-96bb-448e-8f8d-2bbb7d41ae6b" />
