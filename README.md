@@ -39,16 +39,8 @@ my disc: fih_tofu
 𓇼𓇼𓇼Im just about off tab most of the time, w2i is the best option to contact me 𓇼𓇼𓇼
 
 <p align="center">  
-──── Things that PMO me: Annoying and and gets angry for no reason, not responding to WHILE you are on tab and moving around, ──── ──── poking me if your a stranger [ constintly btw ], Rage baiters, myself, I will Fish you. ────
+──── Plz Don't interact with me if your switching genders of characters, I am unsure why it makes me uncomfortable but it just does . . . |  I don't like people who keep saying they are going to kill themselves, that just doesn't sit right with me. ────
 
-<p align="center">
-Ships I like are: ' Gay / straight , no under 18 and over 18 ships, unless its " , `17x18`" , ' 𓇼 , " . And thats it . " ,
-
-<p align="center">
-──── 𓇼 DNI 𓇼 ────
-   
-<p align="center">
-Dni if you Ship 𓇼, coming soon ,𓇼
 
 <p align="center">  
  < ────  Links!  ──── >
