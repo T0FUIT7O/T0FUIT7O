@@ -20,7 +20,7 @@ hi hi hi! Fih | Tofu | Sushi is my online name, only a few people know my irl no
  < ────  Links!  ──── >
 </p>
  
-   ✦  [atabook](https://aratakitofu.atabook.org/)  ✦  [strawpage](https://chosofihtofu.straw.page/) ✦ [card comin soon.]()  ✦  [Twitter/X](https://x.com/Lazy_Tofu7)   ✦  [Tiktok](https://www.tiktok.com/@tofusushi31213)   ✦  [Insta](https://www.instagram.com/fih_tofu/)  ✦  
+   ✦  [atabook](https://aratakitofu.atabook.org/)  ✦  [strawpage](https://chosofihtofu.straw.page/) ✦ [card comin soon.]()  ✦  
 
 
 <p align="center">  
