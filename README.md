@@ -1,10 +1,4 @@
 
-<div align="center">
-<div class="markdown heading" dir="auto">
-  <a href="https://git.io/typing-svg">
-    
-  <p align="center">
-
 
 ˚ʚ♡ɞ˚![MyLovers](https://komarev.com/ghpvc/?username=natterstefan&color=FAC151)˚ʚ♡ɞ˚
 
@@ -22,10 +16,6 @@ my disc: fih_tofu
 
 
 
-
-
-
-</p>
 
 <p align="center">
 ✦ ✩ Any gender's is oaky, but i normally use She/Her ✩ ✦ 
@@ -45,7 +35,6 @@ my disc: fih_tofu
 
    ✦  [atabook](https://aratakitofu.atabook.org/)  ✦  [strawpage](https://chosofihtofu.straw.page/) ✦ [card comin soon.]()  ✦  [Twitter/X](https://x.com/Lazy_Tofu7)   ✦  [Tiktok](https://www.tiktok.com/@tofusushi31213)   ✦  [Insta](https://www.instagram.com/fih_tofu/)  ✦  
     
-<p align="center">
 
 
 
