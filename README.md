@@ -5,8 +5,6 @@
     
   <p align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=6F3FD4E6&width=435&lines=%22Are+you+the+strongest+because%22;%22you're+Satoru+Gojo%3F%22;%22Or+are+you+Satoru+Gojo+because%22;%22you're+the+strongest%3F%22)](https://git.io/typing-svg)
-
 
 ˚ʚ♡ɞ˚![MyLovers](https://komarev.com/ghpvc/?username=natterstefan&color=FAC151)˚ʚ♡ɞ˚
 
@@ -20,7 +18,6 @@ my disc: fih_tofu
  ✦  Birthday ~ March 28th ! ! !  ✦ 
 
 <p align="center">
-<img width="560" height="375" alt="image" src="https://github.com/user-attachments/assets/f0955436-3707-471f-9afa-016abfc4f421" />
 
 
 
