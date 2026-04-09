@@ -29,6 +29,10 @@ this is Zuu! She's from the same place as me!
 <p align="center">  
 <img width="233" height="42" alt="image" src="https://github.com/user-attachments/assets/f5c9629f-86a6-46d0-8b79-b04869ea5298" />
 
+<p align="center">  
+<img width="735" height="419" alt="image" src="https://github.com/user-attachments/assets/391baa0c-c212-4526-b9dd-3351495650d4" />
+
+
 
 
 
