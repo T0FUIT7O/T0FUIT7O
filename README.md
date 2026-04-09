@@ -46,6 +46,11 @@ this is Zuu! She's from the same place as me!
    
  ✦  [X/twitter](https://x.com/Lazy_Tofu7) ✦
 
+<p align="center">  
+GUYS MY CRUSH FOLLOWED ME
+<p align="center">  
+<img width="896" height="175" alt="image" src="https://github.com/user-attachments/assets/a7ccc96a-0fa8-4845-84f3-45f800a0820e" />
+
 
 
 
