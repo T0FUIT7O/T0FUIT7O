@@ -27,10 +27,13 @@ hi hi hi! Fih | Tofu | Sushi is my online name, only a few people know my irl no
 this is Zuu! She's from the same place as me! 
  I already screen shared a movie with her >.< only 48 minutes away babes <3
 <p align="center">  
-<img width="233" height="42" alt="image" src="https://github.com/user-attachments/assets/f5c9629f-86a6-46d0-8b79-b04869ea5298" />
+<img width="233" height="42" alt="image" src="https://github.com/user-attachments/assets/f5c9629f-86a6-46d0-8b79-b04869ea5298" /> 
+  <p align="center">  
+  <img width="292" height="439" alt="image" src="https://github.com/user-attachments/assets/2c20dd34-4414-4922-95df-8f6406b63b6d" />
+ 
 
-<p align="center">  
-<img width="735" height="419" alt="image" src="https://github.com/user-attachments/assets/391baa0c-c212-4526-b9dd-3351495650d4" />
+
+
 
 
 
