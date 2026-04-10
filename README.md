@@ -26,7 +26,7 @@ hi hi hi! Fih | Tofu | Sushi is my online name, only a few people know my irl no
 
 
 <p align="center">  
-this is Zuu! She's from the same place as me! 
+My babe - second date tonight 😛 -
  I already screen shared a movie with her >.< only 48 minutes away babes <3
 <p align="center">  
 <img width="233" height="42" alt="image" src="https://github.com/user-attachments/assets/f5c9629f-86a6-46d0-8b79-b04869ea5298" /> 
