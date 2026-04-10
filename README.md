@@ -1,7 +1,7 @@
 [secondaccount](https://github.com/boothilltofu) [thirdaccount](https://github.com/VarkaFih)
 
 <p align="center">  
-<img width="524" height="363" alt="image" src="https://github.com/user-attachments/assets/39eac9f6-d488-4fb9-a67c-71fe593fc936" />
+<img width="541" height="350" alt="image" src="https://github.com/user-attachments/assets/b7b76f06-effa-4cb4-97af-015e00365c6a" />
 
 
 
