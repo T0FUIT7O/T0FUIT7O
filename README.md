@@ -12,7 +12,13 @@ hi hi hi! Fih | Tofu | Sushi is my online name, only a few people know my irl no
  dni unless under 12 or over 19 i have standereds with being a 15 year old! / brday March 28th 2011 😋
  
 <p align="center"> 
+Ships i like in jjk. /Yuji+Megumi/Suguru+Satoru/Me+Suguru/
 
+<p align="center"> 
+Ships I like in genshin. /Neuvillette+Wrio/Xiao+bothTraveler/Scaramouche+Me/Itto+Gorou/
+
+<p align="center"> 
+Ships I like in Mha. /Katsuki+Kirishima/Deku+GravityGirl/Shoto+Me/KatsukiANDKirishima+me/
 
 
  <p align="center"> 
@@ -31,11 +37,6 @@ My babe - second date tonight 😛 -
 <p align="center">  
 <img width="233" height="42" alt="image" src="https://github.com/user-attachments/assets/f5c9629f-86a6-46d0-8b79-b04869ea5298" /> 
  
-✦ [YouTub](https://www.youtube.com/@tofusushi31213) ✦
-  
- ✦  [Tiktok](https://www.tiktok.com/@tofusushi31213) ✦
-   
- ✦  [X/twitter](https://x.com/Lazy_Tofu7) ✦
 
 <p align="center">  
 GUYS MY CRUSH FOLLOWED ME
